@@ -1,3 +1,3 @@
-* yo
+*yo
 
 I'm back :)
